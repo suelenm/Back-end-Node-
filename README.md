@@ -23,4 +23,7 @@ SOMOS REVOLUTION MAKERS - Aqui, você encontrará pessoas que vestem a camisa e 
 
 Conheça nossas vagas https://jobs.kenoby.com/remessaonline?utm_source=website
 
+https://www.linkedin.com/company/remessaonline/mycompany/
+
+
 Venha ser #RevolutionMakers e se junte ao time que está revolucionando as transações financeiras! 🚀💙
